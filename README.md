@@ -4,7 +4,7 @@
  
  THE triple Baka
  
-   Miku:(Laedia)[
+   Miku:[Laedia](https://github.com/DoctorFunkbeat)
   
    Neru:[Max](https://github.com/WingedMax) 
    
