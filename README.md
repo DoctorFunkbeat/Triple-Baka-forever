@@ -8,5 +8,5 @@
   
    Neru:(Max)[ 
    
-   Teto:(Riddle)[https://github.com/oliveraliencreature-a11y]
+   Teto:[Riddle](https://github.com/oliveraliencreature-a11y)
 
