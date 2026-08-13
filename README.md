@@ -17,3 +17,10 @@
 
 <img width="1600" height="1200" alt="image" src="https://github.com/user-attachments/assets/f536be88-3287-4c34-adff-ad9a8196f9ff" />
 *shopping collab,from left to right:Oliver, Max and Laedia 
+
+
+<img width="500" height="500" alt="IMG_9810" src="https://github.com/user-attachments/assets/04a42a25-f2f0-437d-9e8a-e0e24f9ae79c" />
+
+Literally us!! :D
+
+        Leadia , Max & Oliver = best trio ever!
