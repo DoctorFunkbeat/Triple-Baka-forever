@@ -11,3 +11,9 @@
    Teto:[Riddle](https://github.com/oliveraliencreature-a11y)
 
 <img width="637" height="486" alt="image" src="https://github.com/user-attachments/assets/b0c62688-df97-475a-a441-dd4e7326d5b5" />
+*us in ponytown, from left to right: Laedia,Max and Oliver*
+
+
+
+<img width="1600" height="1200" alt="image" src="https://github.com/user-attachments/assets/f536be88-3287-4c34-adff-ad9a8196f9ff" />
+*shopping collab,from left to right:Oliver, Max and Laedia 
