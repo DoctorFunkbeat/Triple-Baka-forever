@@ -13,11 +13,17 @@
 <img width="637" height="486" alt="image" src="https://github.com/user-attachments/assets/b0c62688-df97-475a-a441-dd4e7326d5b5" />
 *us in ponytown, from left to right: Laedia,Max and Oliver*
 
+∘₊✧──────✧₊∘
 
+<img width="522" height="454" alt="image" src="https://github.com/user-attachments/assets/97ed1a8a-97cc-4fff-a57f-4a31e2c5f18c" />
+*left to right: Max, Laedia and Oliver*
+
+∘₊✧──────✧₊∘
 
 <img width="1600" height="1200" alt="image" src="https://github.com/user-attachments/assets/f536be88-3287-4c34-adff-ad9a8196f9ff" />
-*shopping collab,from left to right:Oliver, Max and Laedia 
+*shopping collab,from left to right:Oliver, Max and Laedia*
 
+∘₊✧──────✧₊∘
 
 <img width="500" height="500" alt="IMG_9810" src="https://github.com/user-attachments/assets/04a42a25-f2f0-437d-9e8a-e0e24f9ae79c" />
 
