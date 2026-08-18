@@ -9,6 +9,29 @@
    Neru:[Max](https://github.com/WingedMax) 
    
    Teto:[Riddle](https://github.com/oliveraliencreature-a11y)
+   
+♫ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ♫
+
+゛𝐈𝐭'𝐬 𝐛𝐞𝐞𝐧 3 𝐲𝐞𝐚𝐫𝐬 𝐬𝐢𝐧𝐜𝐞 𝐰𝐞 𝐦𝐞𝐭.. 𝐛𝐞𝐬𝐭 3 𝐲𝐞𝐚𝐫𝐬 𝐨𝐟 𝐨𝐮𝐫 𝐥𝐢𝐯𝐞𝐬 ⸝⸝.ᐟ⋆
+
+𓊆ྀི 𝐌𝐞𝐞𝐭 𝐭𝐡𝐞 𝐓𝐫𝐢𝐩𝐥𝐞 𝐁𝐚𝐤𝐚 .ᐟ 𓊇ྀི 🥬🥖📱
+
+ও αвσυт υʂ!! ۶ৎ
+
+🥬✦. ɱιƙυ: 
+ƒυηквєαт ᴼᴿ ℓєα∂ια ⸝⸝ нє/тнєу ⸝⸝ тмαѕc  ⸝⸝ ∂ємιяσмαтιc + мσяє ⸝⸝
+
+🥖✦. тєтσ: 
+яι∂∂ℓє ᴼᴿ σℓινєя ⸝⸝ αηу ρяσησυηѕ (тнєу/тнєм ρяєƒ)⸝⸝ тмαѕc ⸝⸝ gєη∂єяƒℓυι∂ ⸝⸝ σмηι αяσαcє 
+
+📱✦. ηєяυ: 
+мαχ ᴼᴿ ι∂ια ⸝⸝ нє/нιм ⸝⸝ тмαѕc ⸝⸝ gαу ⸝⸝ ∂ємιѕєχυαℓ ⸝⸝
+
+゛Ⴆαƙα Ⴆαƙα Ⴆαƙα ⸝⸝.ᐟ⋆l
+
+「𝟏𝟐. 𝟒」 тнє ∂αу ωє мєt !! ₊˚⊹ ᰔ
+
+♫ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 <img width="637" height="486" alt="image" src="https://github.com/user-attachments/assets/b0c62688-df97-475a-a441-dd4e7326d5b5" />
 *us in ponytown, from left to right: Laedia,Max and Oliver*
