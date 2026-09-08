@@ -64,6 +64,19 @@ Literally us!! :D
 
 <img width="593" height="469" alt="IMG_1321" src="https://github.com/user-attachments/assets/551acba1-77bc-4939-9eff-f32a06be8ebe" />
 
+∘₊✧──────✧₊∘
+
+<img width="764" height="513" alt="image" src="https://github.com/user-attachments/assets/edddfa94-e5a1-4a1c-9e9b-463eee4650ea" />
+
+∘₊✧──────✧₊∘
+
+<img width="707" height="509" alt="image" src="https://github.com/user-attachments/assets/d9d5b2e5-a197-4737-99c7-ef7d08866244" />
+
+∘₊✧──────✧₊∘
+
+<img width="846" height="754" alt="image" src="https://github.com/user-attachments/assets/0eb9b26f-7ada-4087-80d9-7a52c50a0ee1" />
+
+∘₊✧──────✧₊∘
 
 
         Leadia , Max & Oliver = best trio ever!
