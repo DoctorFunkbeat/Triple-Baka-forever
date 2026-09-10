@@ -78,6 +78,10 @@ Literally us!! :D
 
 ∘₊✧──────✧₊∘
 
+<img width="1600" height="1600" alt="image" src="https://github.com/user-attachments/assets/7d321e09-654e-4537-9499-ea6332dd230c" />
+
+
+∘₊✧──────✧₊∘
 
         Leadia , Max & Oliver = best trio ever!
 
